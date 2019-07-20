@@ -77,3 +77,18 @@ The SMS Spam Collection v.1 is provided for free and with no limitations excepti
 
 3. Limitation of Liability. IN NO EVENT SHALL THE COPYRIGHT HOLDERS OR THEIR AFFILIATES, OR THE CORPUS CONTRIBUTING EDITORS, BE LIABLE FOR ANY INDIRECT, SPECIAL, INCIDENTAL OR CONSEQUENTIAL DAMAGES, INCLUDING, WITHOUT LIMITATION, DAMAGES FOR LOSS OF GOODWILL OR ANY AND ALL OTHER COMMERCIAL DAMAGES OR LOSSES, EVEN IF ADVISED OF THE POSSIBILITY THEREOF, AND REGARDLESS OF WHETHER ANY CLAIM IS BASED UPON ANY CONTRACT, TORT OR OTHER LEGAL OR EQUITABLE THEORY, RELATING OR ARISING FROM THE CORPUS, YOUR CORPUS USE OR THIS LICENSE AGREEMENT.
 © 2019 GitHub, Inc.
+
+
+
+## Connecting Channels
+Please write me your queries/feedbacks/suggestions @
+<shashankshekhar.1663@gmail.com (Gmail)>
+
+and follow me @
+
+1. https://twitter.com/TheSha2nk (Twitter)
+
+2. https://www.facebook.com/sha2nkxbenznx (Facebook)
+
+3. https://www.instagram.com/the_sha2nk_edition/ (Instagram)
+
